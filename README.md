@@ -1,1 +1,1 @@
-<img width="2000" height="600" alt="Blue Yellow Corporate Linkedin Article Cover image  (11)" src="https://github.com/user-attachments/assets/21e439d0-7ce1-4abd-953a-a3971fda96fa" />
+<img width="2000" height="600" alt="Blue Yellow Corporate Linkedin Article Cover image  (20)" src="https://github.com/user-attachments/assets/e0441c2a-813b-40e7-b741-f0d09337a682" />
